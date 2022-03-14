@@ -1,2 +1,0 @@
-# wegwerpburgers
-staát der nederlanden
